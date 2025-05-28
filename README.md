@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @imjunooo
+- 👀 I’m interested in UX/UI design, software and web development and a whole lot of other things!
+- 📫 How to reach me:
+  - 📧 contact@imjunooo.fr
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: I'm really good at Mario Kart! (especially MKWii)
