@@ -2,5 +2,5 @@
 - 👀 I’m interested in UX/UI design, software and web development and a whole lot of other things! (yeah I'm really curious)
 - 📫 How to reach me:
   - 📧 contact@imjunooo.fr
-- 😄 Pronouns: she/her 🏳️‍⚧️ (protect the dolls)
+- 😄 Pronouns: she/they 🏳️‍⚧️ (protect the dolls)
 - ⚡ Fun fact: I'm really good at Mario Kart! (especially MKWii)
